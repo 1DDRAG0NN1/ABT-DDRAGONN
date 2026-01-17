@@ -40,9 +40,11 @@ _Highlighted is most likeley_
 
 Im very energetic once you mention my intrests! (<-view strawpage)
 
-appoligies if i get quiet or dry after a while, i dislike like *super long* convos
+appoligies if i get quiet or dry after a while, i dislike like *super long* convos.
 
 im not the best at starting conversations or going up to people.
+
+I LOVE CROWNING PEOPLE AND GETTING CROWNED YAYAYAY
 
 **i dont roleplay.**
 > (often?? i havent in ages and it lowkey cringes me out when someone randomly roleplays sorry!!)
