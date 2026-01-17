@@ -1,3 +1,7 @@
+> ,, Your humble ~~servant~~ "Aventurine," at your disposal, just a cog in the machine known as the IPC's Strategic Investment Department. Nevertheless, i can also play the role of "friend" -- if needed."
+
+
+
 <img width="478" height="255" alt="image-4da2-gradientmap pro" src="https://github.com/user-attachments/assets/a56f94fd-5c74-4135-80de-aa7dcb356aa7" />
 
 
@@ -30,7 +34,7 @@ _Highlighted is most likeley_
 
 **Inspo allowed BUT NOT HEAVY INSPO.**
 
-<img width="255" height="255" alt="image-588e-gradientmap pro" src="https://github.com/user-attachments/assets/62bdd2f7-7e5e-4fd7-85d5-b1c9534025e4" />
+<img width="255" height="255" alt="image-d354-gradientmap pro" src="https://github.com/user-attachments/assets/4382ba8e-002b-44e9-9120-a80a24f0238c" />
 
 ***DNI--*** 13- , 19+ . Heluva boss, hazbin hotel, problematic fandoms, proshippers, racisim, basic dni criterea just dont be weird😓.
 
@@ -47,9 +51,15 @@ im not the best at starting conversations or going up to people.
 I LOVE CROWNING PEOPLE AND GETTING CROWNED YAYAYAY
 
 **i dont roleplay.**
-> (often?? i havent in ages and it lowkey cringes me out when someone randomly roleplays sorry!!)
+
+⁽ᵒᶠᵗᵉⁿ?? ⁱ ʰᵃᵛᵉⁿᵗ ⁱⁿ ᵃᵍᵉˢ ᵃⁿᵈ ⁱᵗ ˡᵒʷᵏᵉʸ ᶜʳⁱⁿᵍᵉˢ ᵐᵉ ᵒᵘᵗ ʷʰᵉⁿ ˢᵒᵐᵉᵒⁿᵉ ʳᵃⁿᵈᵒᵐˡʸ ʳᵒˡᵉᵖˡᵃʸˢ ˢᵒʳʳʸ!!⁾
+
+---------------------------------------------------------------------------------------------
+
+<img width="478" height="255" alt="image-f3c2-gradientmap pro" src="https://github.com/user-attachments/assets/afc063cd-4647-4713-bead-ad7c2f36a9db" />
 
 
+> ,, I wont fool myself thinkin' our paths'll cross again... if they do, lets hope i ain't pushin' up daisies."
 
 ---------------------------------------------------------------------------------------------
     https://ddragonn.straw.page
