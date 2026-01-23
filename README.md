@@ -14,7 +14,8 @@
 
 ɪ ʟᴏᴏᴏᴠᴇ ʀᴇᴅ/ʏᴇʟʟᴏᴡ/ᴏʀᴀɴɢᴇ ᴛᴏɴᴇꜱ!!! ɪꜰ ʏᴏᴜ ʜᴀᴠᴇ ᴀ ᴘᴏɴʏ ᴏʀ ᴀɴʏᴛʜɪɴɢ ᴡɪᴛʜ ᴇᴍ ᴘʟꜱᴘʟꜱʟᴘʟ ꜱʜᴀʀᴇ!!
 
----------------------------------------------------------------------------------------------
+<img width="384" height="96" alt="tumblr_6e9adecd3809a440e34fd73ee716bd85_37beb9bf_400" src="https://github.com/user-attachments/assets/bdbd23c5-a2fa-464f-b3bc-150f30492926" />
+
 
 ⛔ ← **Offtab, busy,** not in the best mood
 
@@ -39,6 +40,8 @@ _Highlighted is most likeley_
 ***DNI--*** 13- , 19+ . Heluva boss, hazbin hotel, problematic fandoms, proshippers, racisim, basic dni criterea just dont be weird😓.
 
 ---------------------------------------------------------------------------------------------
+
+<img width="99" height="56" alt="tumblr_7a9bf0d68fd5b0205f35808a4038c099_977428ca_100" src="https://github.com/user-attachments/assets/a1329857-dd2d-46ce-8c32-7158c123ccf3" />
 
 # Before you interact!
 
