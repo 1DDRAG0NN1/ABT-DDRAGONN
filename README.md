@@ -21,7 +21,7 @@
 
 🌙 ← about to dissconect, afk
 
-🟢 ← **active but not looking for a chat**, with a friend, nonverbal
+🟢 ← **active but not looking for a chat, with friends,** nonverbal or mute
 
 💬 ← interact please!!! looking for a chat.
 
