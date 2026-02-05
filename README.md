@@ -65,6 +65,10 @@ UNLESS FOR A JOKE!!!!!!
 
 ---------------------------------------------------------------------------------------------
 
+i LAVA LOVE BOOTHILL AND AVENTURINE SMSMS GIVE ME EVERYTHING OF THEM NOW!!!!!!!
+
+---------------------------------------------------------------------------------------------
+
 <img width="478" height="255" alt="image-f3c2-gradientmap pro" src="https://github.com/user-attachments/assets/afc063cd-4647-4713-bead-ad7c2f36a9db" />
 
 
