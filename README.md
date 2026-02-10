@@ -36,7 +36,6 @@ you MAY hide me through the profile settings (block) if i do anything that upset
 
 **Inspo allowed BUT NOT HEAVY INSPO.**
 
-id preffer if you dont boop me and i boop you back and it just goes back and forth for hours😓😓 DOES NOT MEAN YOU CANT BOOP ME THO!!
 
 <img width="255" height="255" alt="image-d354-gradientmap pro" src="https://github.com/user-attachments/assets/4382ba8e-002b-44e9-9120-a80a24f0238c" />
 
