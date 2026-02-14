@@ -23,7 +23,7 @@
 
 🟢 ← **active but not looking for a chat, with friends,** nonverbal or mute
 
-💬 ← interact please!!! looking for a chat.
+💬 ← bored, interact please!!! looking for a chat.
 
 _Highlighted is most likeley_
 
