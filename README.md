@@ -4,7 +4,7 @@
 
 <img width="478" height="255" alt="image-4da2-gradientmap pro" src="https://github.com/user-attachments/assets/a56f94fd-5c74-4135-80de-aa7dcb356aa7" />
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=1DDRAG0NN1-username&label=PROFILE+VIEWS&color=yellow&style=plastic)
+
 
 ---------------------------------------------------------------------------------------------
 ɴᴏᴛ ᴏɴ ᴘᴏɴʏᴛᴏᴡɴ ᴛᴏᴏ ᴏꜰᴛᴇɴ! ʙᴜᴛ ɪᴍ ᴍᴏꜱᴛʟʏ ᴀᴛ ʙᴀᴋᴇʀʏ ᴏʀ ᴀʙᴏᴠᴇ ɪᴛ (ʜꜱʀ + ɢɪ ꜱᴘᴏᴛ)
