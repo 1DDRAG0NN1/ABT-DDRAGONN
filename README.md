@@ -13,7 +13,6 @@
 
 ---------------------------------------------------------------------------------------------
 
-ɪ ʟᴏᴏᴏᴠᴇ ʀᴇᴅ/ʏᴇʟʟᴏᴡ/ᴏʀᴀɴɢᴇ ᴛᴏɴᴇꜱ!!! ɪꜰ ʏᴏᴜ ʜᴀᴠᴇ ᴀ ᴘᴏɴʏ ᴏʀ ᴀɴʏᴛʜɪɴɢ ᴡɪᴛʜ ᴇᴍ ᴘʟꜱᴘʟꜱʟᴘʟ ꜱʜᴀʀᴇ!!
 
 <img width="384" height="96" alt="tumblr_6e9adecd3809a440e34fd73ee716bd85_37beb9bf_400" src="https://github.com/user-attachments/assets/bdbd23c5-a2fa-464f-b3bc-150f30492926" />
 
@@ -61,10 +60,11 @@ im not the best at starting conversations or going up to people!. so please ment
 
 (if im not busy ⬏ )
 
+I LLLOVE yellow through red tones!!!!! fork found in the kitchen.
 
 **Please dont randomly roleplay with me.**
 
-UNLESS FOR A JOKE!!!!!!
+UNLESS FOR A JOKE!!!!!! ⬏
 
 ---------------------------------------------------------------------------------------------
 
