@@ -1,3 +1,6 @@
+[ATA](https://drag0n.atabook.org)
+
+
 > ,, Your humble ~~servant~~ "Aventurine," at your disposal, just a cog in the machine known as the IPC's Strategic Investment Department. Nevertheless, i can also play the role of "friend" -- if needed."
 
 
@@ -28,9 +31,6 @@
 
 ---------------------------------------------------------------------------------------------
 
-[ATA](https://drag0n.atabook.org)
-
----------------------------------------------------------------------------------------------
 
 ɴᴏᴛ ᴏɴ ᴘᴏɴʏᴛᴏᴡɴ ᴛᴏᴏ ᴏꜰᴛᴇɴ! ʙᴜᴛ ɪᴍ ᴍᴏꜱᴛʟʏ ᴀᴛ ʙᴀᴋᴇʀʏ ᴏʀ ᴀʙᴏᴠᴇ ɪᴛ (ʜꜱʀ + ɢɪ ꜱᴘᴏᴛ)
 
