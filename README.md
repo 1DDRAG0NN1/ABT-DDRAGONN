@@ -1,6 +1,3 @@
-
-DO NOT COVER YOUR PONY OVER MINE PPPLEEAASEE
-
 [ATA](https://drag0n.atabook.org)
 
 
@@ -12,6 +9,7 @@ DO NOT COVER YOUR PONY OVER MINE PPPLEEAASEE
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=1DDRAG0NN1-username&label=PROFILE+VIEWS&color=yellow&style=plastic)
 
+DO NOT COVER YOUR PONY OVER MINE PPPLEEAASEE
 
 ---------------------------------------------------------------------------------------------
 
