@@ -37,3 +37,7 @@ DO NOT COVER YOUR PONY OVER MINE PPPLEEAASEE
 ---------------------------------------------------------------------------------------------
 
 HAZBIN HOTEL / HELUVA BOSS / VIZIEPOP *AVID FANS* / ROLEPLAY Do not interact please!
+
+---------------------------------------------------------------------------------------------
+
+I LOVE BOOTHILL I LOVE BOOTHILL I LOVE BOOTHILL I LOVE BOOTHILL I LOVE BOOTHILL I LOVE BOOTHILL I LOVE BOOTHILL I LOVE BOOTHILL I LOVE BOOTHILL I LOVE BOOTHILL 
