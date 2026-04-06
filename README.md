@@ -36,7 +36,7 @@ DO NOT COVER YOUR PONY OVER MINE PPPLEEAASEE
 
 ---------------------------------------------------------------------------------------------
 
-HAZBIN HOTEL / HELUVA BOSS / VIZIEPOP *AVID FANS* / ROLEPLAY Do not interact please!
+HAZBIN HOTEL / HELUVA BOSS / VIZIEPOP *AVID FANS* / ROLEPLAY / 13- 19+ Do not interact please!
 
 ---------------------------------------------------------------------------------------------
 
