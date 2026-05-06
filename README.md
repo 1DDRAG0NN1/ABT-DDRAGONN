@@ -18,7 +18,7 @@ DO NOT COVER YOUR PONY OVER MINE PPPLEEAASEE
 <img width="720" height="50" alt="image-2f68-gradientmap pro-removebg-preview" src="https://github.com/user-attachments/assets/4f849af1-6676-48f8-9440-8e58d3f38054" />
 
 
-+
+
 
 
 [BEFORE YOU INTERACT](https://avensbyi.straw.page)
